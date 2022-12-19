@@ -1,0 +1,1 @@
+# SIE-SPK-Pemilihan-Guru-Terbaik-Sekolah-X-Menggunakan-Metode-Simple-Additive-Weighting-SAW-
